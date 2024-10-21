@@ -1,1 +1,0 @@
-Allo Ugo et Jo!
